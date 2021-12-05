@@ -2,7 +2,7 @@
 - 👀 I’m interested in girls
 - 🌱 I’m currently learning hacking
 - 💞️ I’m looking to collaborate on Discord Servers
-- 📫 Check out my Discord Server - https://discord.gg/OhMyGoD
+- 📫 Check out my Discord Server - https://discord.gg/nAx35wH6MQ
 
 
 <!---
